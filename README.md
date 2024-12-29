@@ -1,4 +1,3 @@
-
 ![enter image description here](https://i.sstatic.net/yk5EBda0.jpg)
 
 
@@ -52,5 +51,34 @@ Based on analysis results, here are tailored suggestions for enhancing both tria
 | **Philautia**       | Engage in self-care activities that promote personal growth and self-love before reaching out to others.   | Boosts empathy towards oneself, which can enhance overall compassion in relationships.|
 
 
-## alternative post is available at below 👇:
-https://rentry.co/8udeku2a
+## And more reports made by AI in below 📁:
+![enter image description here](https://i.sstatic.net/JKKCXS2C.jpg)
+
+https://drive.google.com/drive/folders/1-YuIUgntQVvA8gIpJACYGqErNT0oTEdI
+
+### Reports like game theory analysis is available at below:
+
+![enter image description here](https://i.sstatic.net/HcSEACOy.jpg)
+
+https://docs.google.com/document/d/15tkH102ZPIHpCAkWITpV9Gu08csHQRY-/edit?usp=drivesdk&ouid=109257567653816211530&rtpof=true&sd=true
+
+## Or it's psychology report analysis made by AI which is available at below 👇:
+[![enter image description here](https://i.sstatic.net/Jf6T5JV2.jpg)
+
+
+
+https://docs.google.com/document/d/16fZkJ-57fbSZXRU6M9rjr5hX9lPJcWwZ/edit?usp=drivesdk&ouid=109257567653816211530&rtpof=true&sd=true
+
+## Or the academic proposal for this project:
+
+![enter image description here](https://i.sstatic.net/LRG2uICd.jpg)
+
+https://docs.google.com/document/d/16Ye4V7RurzFCrkPIgY91c1UoESjdiKXO/edit?usp=drivesdk&ouid=109257567653816211530&rtpof=true&sd=true
+
+## and the political party constitution for this post by AI 👇:
+
+![enter image description here](https://i.sstatic.net/DuFsQ34E.jpg)
+
+https://docs.google.com/document/d/13Al3h2uHBx0gH_k4EU0l0vQ8GMxGQ2Av/edit?usp=drivesdk&ouid=109257567653816211530&rtpof=true&sd=true
+ 
+
