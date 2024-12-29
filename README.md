@@ -82,3 +82,5 @@ https://docs.google.com/document/d/16Ye4V7RurzFCrkPIgY91c1UoESjdiKXO/edit?usp=dr
 https://docs.google.com/document/d/13Al3h2uHBx0gH_k4EU0l0vQ8GMxGQ2Av/edit?usp=drivesdk&ouid=109257567653816211530&rtpof=true&sd=true
  
 
+# Alternative post for this content is :
+https://rentry.co/hibn4nbh
